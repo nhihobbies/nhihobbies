@@ -1,16 +1,15 @@
-### Hi there 👋
+### Nhí Hobbies
 
-<!--
-**nhihobbies/nhihobbies** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Nhí Hobbies nơi tìm kiếm những sản phẩm đồ chơi RC chất lượng với giá hợp lý và chất lương đi cùng với đó là các cửa hàng online tại các trang thương mại điện tử lớn như Shopee, Sendo, lazada, tiki, adayroi …
 
-Here are some ideas to get you started:
+- Địa chỉ: 718 Trần Hưng Đạo - Quy Nhơn - Bình Định
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- SĐT: 086944888
+
+- Website: https://nhihobbies.vn
+
+https://www.youtube.com/channel/UC39B8Mz_DRhLrGk6q6edYyQ
+
+https://www.linkedin.com/in/nhihobbies/
+
+https://linkhay.com/link/7395072/nhi-hobbies
